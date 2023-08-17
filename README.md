@@ -11,6 +11,6 @@ Discord Admin at Yurasu Fansubs and 22/7 Indonesia Community
 If you want connect me, just contact me at
 
 - Twitter: @naturbrilian
-- Facebook: Lieba Natur Brilian (naturbrilian39)
-- Discord; naturbrilian#5734 or join my server: https://discord.gg/Bz9YuXs9S3
+- Facebook: Lieba Natur Brilian (naturbrilian28)
+- Discord: naturbrilian or join my server: https://discord.gg/Bz9YuXs9S3
 
