@@ -1,4 +1,4 @@
-# Natur-Brilian-About
+# NaturBrilian's About
 ## About Me
 
 An a Vector Maker, Design, Translator & Motion Graphics.
